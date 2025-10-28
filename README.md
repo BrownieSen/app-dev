@@ -19,7 +19,7 @@ These series remind me why anime can be such an amazing form of art and storytel
 | **Genre:** Fantasy, Romance, Drama, Supernatural | **Genre:** Comedy, Fantasy, Adventure, Isekai |
 | **Main Character:** Kotaro Tennouji | **Main Character:** Kazuma Satou |
 | **Synopsis:** A high school student living in the eco-city of Kazamatsuri discovers a hidden world filled with supernatural forces and moral dilemmas. A story about choices and the power to rewrite one’s fate. | **Synopsis:** After dying in a hilarious accident, a gamer is reborn in a fantasy world with a useless goddess and a chaotic party. A parody of RPG tropes filled with laughter and misadventures. |
-| 🔗 [Learn more about Rewrite](https://myanimelist.net/anime/31716/Rewrite) | 🔗 [Learn more about KonoSuba](https://myanimelist.net/anime/30831/Kono_Subarashii_Sekai_ni_Shukufuku_wo) |
+| 🔗 [Learn more about Rewrite](https://myanimelist.net/anime/34126/Rewrite_2nd_Season) | 🔗 [Learn more about KonoSuba](https://myanimelist.net/anime/30831/Kono_Subarashii_Sekai_ni_Shukufuku_wo) |
 
 ---
 
